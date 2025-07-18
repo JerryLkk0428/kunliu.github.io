@@ -1,4 +1,4 @@
-# LIU Kun (Jerry)
+<img src="IMG_3301.jpeg" alt="Profile picture" width="180" style="border-radius: 50%;" />
 
 加州大学伯克利分校, 音乐作曲系（2025 Fall）  
 📍 广州 | 📧 kun.liu0428@outlook.com  
